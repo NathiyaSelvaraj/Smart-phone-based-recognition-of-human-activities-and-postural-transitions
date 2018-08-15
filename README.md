@@ -1,0 +1,1 @@
+# Smart-phone-based-recognition-of-human-activities-and-postural-transitions
